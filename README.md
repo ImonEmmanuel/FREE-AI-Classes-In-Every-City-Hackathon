@@ -1,0 +1,1 @@
+# FREE-AI-Classes-In-Every-City-Hackathon
